@@ -1,5 +1,5 @@
 # 💫 About Me:
-Florida Atlantic University - Computer Science Graduate
+Florida Atlantic University - Bachelor of Science in Computer Science
 
 
 ## 🌐 Socials:
